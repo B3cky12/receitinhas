@@ -31,4 +31,3 @@
 7. Adicione os cubos de frango e guarde o osso pra fazer canja.
 8. Adicione o requeijão, a maionese, o queijo, o sal e a pimenta a gosto, provando pra ver se está no ponto.
 9. Sirva com arroz ou macarrão penne, e aproveite.
-10. 
